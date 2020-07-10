@@ -4,8 +4,8 @@
         
         #############################################
         #                                           #
-        #    Facebook BruteForce, by Rana Aahil     #
-        #    Facebook Contact:       Aahil          #
+        #    Facebook THE GAMER, by wiz hero        #
+        #    Facebook Contact:     Rakib Vau        #
         #                                           #
         #############################################
 
